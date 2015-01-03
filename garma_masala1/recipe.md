@@ -53,4 +53,6 @@
 22. cook until nice
 23. fish out the cloves
 
+Inpspiration: [https://www.youtube.com/watch?v=FpzbVOkHh_M](https://www.youtube.com/watch?v=FpzbVOkHh_M)
+
 tags: indian, spicy, hot, chickpea
